@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Gian aka (frogrest) I'm a Computer Science Graduate and I have interest towards AI and its capabilities. I am looking forward to meeting and learning more from people that has more experience and has been in the industry for quite awhile. I am currently looking for job opportunities and I am more than eager to learn and improve my skills towards technology and its innovations
+I'm Gian aka (frogrest) I'm a Computer Science Graduate. I have interest towards AI and its capabilities. I am looking forward to meeting and learning more from people that has more experience and has been in the industry for quite awhile. I am currently looking for job opportunities and I am more than eager to learn and improve my skills towards technology and its innovations
 
 
 ## 🌐 Socials:
